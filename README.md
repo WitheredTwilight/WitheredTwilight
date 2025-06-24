@@ -4,7 +4,7 @@
 
 
 <p align="center">
-<img src="https://ph.pinterest.com/pin/874261346425729582" width="550" />
+<img src="https://pin.it/OQ1Q393Hl.png" width="550" />
 </p>
 
 
