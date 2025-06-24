@@ -4,7 +4,8 @@
 
 
 <p align="center">
-<img src="https://pin.it/OQ1Q393Hl.png" width="550" />
+<img src=
+  [](https://pin.it/V2c2guAE3)
 </p>
 
 
