@@ -82,3 +82,8 @@
 <img src="https://i.pinimg.com/1200x/ad/f0/c8/adf0c86d08ad946ff0ee7fb3caddb1f1.jpg" width="250" />
 </p>
 <p align="center"> (浅木) </p>
+
+<p align="center">
+<img src="https://i.pinimg.com/736x/d1/7c/e7/d17ce772669ee111bc77e7343c202fcd.jpg" width="250" />
+</p>
+<p align="center"> (zngn_n) </p>
