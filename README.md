@@ -1,3 +1,15 @@
+<p align="center"> QUICK INTRODUCTION </p>
+<p align="center"> Call me RV, Jirou or whatever nickname you can create to call me (very much appreciated!) </p>
+<p align="center"> I write, (any types of fanfics according to my favorite ships) I draw, (Whenever I'm bored, I draw and it's either one of my favorite characters or ships that I adore) I cosplay, (I know this isn't much, but I really LOVE cosplaying with my bff and go to events) and I animate! (view my tiktok for more, though I need to improve however, I'm currently in a mental breakdown :/)  </p>
+<p align="center"> I'm weird, not to the point that I make people uncomfortable. My humor is very random at all times, cracking jokes almost out of nowhere (mostly taken influence from jay - kubzscouts) Please DO TELL so we can settle it. </p>
+<p align="center"> Anyone can INT unless you're in the BASIC DNI CRITERIA especially people who have no sense of empathy and respect. </p>
+<p align="center"> I really care about my loveones so please, behave yourself whenever I'm around with them. (I'm an observant person and I can read people based from the experiences I've been with.) </p>
+
+<p align="center"> Anyway, I'm very nice! (❁´◡`❁) Feel free to approach at anytime but, I might be AFK at all times, so feel free to C+H and/or W2I !! </p>
+<p align="center"> [Might update soon, repository or another strawpage] </p>
+
+<p align="center"> FAVS. </p>
+
 <p align="center">
 <img src="https://i.pinimg.com/736x/d5/29/ab/d529ab9f5d39f5f68ca3bba9ac8640e9.jpg" width="250" />
 </p>
