@@ -77,3 +77,8 @@
 <img src="https://i.pinimg.com/1200x/36/15/6a/36156aacffde632b1a759e9bb087531b.jpg" width="250" />
 </p>
 <p align="center"> reika_(reikadraws) </p>
+
+<p align="center">
+<img src="https://i.pinimg.com/1200x/ad/f0/c8/adf0c86d08ad946ff0ee7fb3caddb1f1.jpg" width="250" />
+</p>
+<p align="center"> (浅木) </p>
