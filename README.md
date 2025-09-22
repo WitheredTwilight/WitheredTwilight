@@ -6,6 +6,7 @@
 <p align="center"> I really care about my loveones so please, behave yourself whenever I'm around with them. (I'm an observant person and I can read people based from the experiences I've been with.) </p>
 
 <p align="center"> Anyway, I'm very nice! (❁´◡`❁) Feel free to approach at anytime but, I might be AFK at all times, so feel free to C+H and/or W2I !! </p>
+<p align="center"> Also you might catch me speaking "$" or "5" Well, my "letter s" is BROKEN ATM. (This is why I often get called as the "money talk." ! </p>
 <p align="center"> [Might update soon, repository or another strawpage] </p>
 
 <p align="center"> FAVS. </p>
