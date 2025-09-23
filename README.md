@@ -1,6 +1,6 @@
 <p align="center"> QUICK INTRODUCTION </p>
 
-<p align="center"> TAKE NOTE: Yes. I see myself as Dazai Osamu from BSD. Though, I'm fully aware of Dazai Osamu's darker past in BSD, when I say I 'IRL' him, I'm speaking to the chaotic humor, the haunting weight of his nihilism, and the fractured thoughts that mirror my own when I'm at my lowest—NOT HIS CRIMES, but the ache behind the smile that I undertand too well. (just block if you don't want to deal with someone like me.) </p>
+<p align="center"> TAKE NOTE: Yes. I see myself as Dazai Osamu from BSD. Though, I'm fully aware of Dazai Osamu's darker past in BSD, when I say I 'IRL' him, I'm speaking to the chaotic humor, the haunting weight of his nihilism, and the fractured thoughts that mirror my own when I'm at my lowest—NOT HIS CRIMES, but the ache behind the smile that I understand too well. (just block if you don't want to deal with someone like me.) </p>
 
 <p align="center">
 <img src="https://i.pinimg.com/736x/6e/bb/f6/6ebbf685428d03a9a82f1766b06a6aae.jpg" width="250" />
