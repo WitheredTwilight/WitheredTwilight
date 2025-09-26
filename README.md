@@ -108,3 +108,13 @@
 <img src="https://i.pinimg.com/736x/d1/7c/e7/d17ce772669ee111bc77e7343c202fcd.jpg" width="250" />
 </p>
 <p align="center"> (zngn_n) </p>
+
+<p align="center">
+<img src="https://i.pinimg.com/736x/3e/e6/0c/3ee60ccfcc0f266b134d12ff5a5fdb0d.jpg" width="250" />
+</p>
+<p align="center"> (gajyago) </p>
+
+<p align="center">
+<img src="https://i.pinimg.com/1200x/40/44/ad/4044ad2e8be179c5900595cc453db975.jpg" width="250" />
+</p>
+<p align="center"> (kimyno_ki) </p>
