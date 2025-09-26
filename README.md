@@ -7,7 +7,7 @@
 </p>
 
 <p align="center"> Call me RV, Jirou or whatever nickname you can create to call me (very much appreciated!) </p>
-<p align="center"> I write, (any types of fanfics according to my favorite ships) I draw, (Whenever I'm bored, I draw and it's either one of my favorite characters or ships that I adore) I cosplay, (I know this isn't much, but I really LOVE cosplaying with my bff and go to events) and I animate! (view my tiktok for more, though I need to improve however, I'm currently in a mental breakdown :/)  </p>
+<p align="center"> I write, I draw, I cosplay, and I animate! </p>
 <p align="center"> I'm weird, not to the point that I make people uncomfortable. My humor is very random at all times, cracking jokes almost out of nowhere (mostly taken influence from jay - kubzscouts) Please DO TELL so we can settle it. </p>
 <p align="center"> Anyone can INT unless you're in the BASIC DNI CRITERIA especially people who have no sense of empathy and respect. </p>
 <p align="c enter"> I really care about my loveones so please, behave yourself whenever I'm around with them. (I'm an observant person and I can read people based from the experiences I've been with.) </p>
