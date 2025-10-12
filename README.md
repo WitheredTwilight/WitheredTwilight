@@ -1,16 +1,15 @@
-## Hi there 👋
+## <p align="center"> TW: Canon Character X OC (Mainly GI) </p>
 
-<!--
-**WitheredTwilight/WitheredTwilight** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+<img src="https://i.pinimg.com/736x/4b/15/dd/4b15ddd624686f63b48ed8bdf8036ca4.jpg" width="450" />
+</p>
 
-Here are some ideas to get you started:
+<p align="center"> "Ji...rou?" </p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+<img src="https://i.pinimg.com/736x/00/05/0b/00050b8cd978c9795f927e7fbabd87ba.jpg" width="450" />
+</p>
+
+<p align="center"> "Ah, you remember me before I can remember myself." </p>
+
+## <p align="center"> OC Introduction (Coming soon!) </p>
