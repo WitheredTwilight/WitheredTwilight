@@ -18,7 +18,7 @@
 <p align="center"> Fatui OC , Crimson Blood , Thorns of Remembrance </p>
 
 <p align="center">
-<img src="https://i.pinimg.com/736x/ca/d0/08/cad008109882fce171cd0d85b712b6e4.jpg" width="250" />
+<img src="https://i.pinimg.com/736x/d4/44/10/d44410d922f6d2290d4eb2923b01e1b1.jpg" width="250" />
 </p>
 
-<p align="center"> Rushed OC in progress, idk how or why but, I love Diluc. </p>
+<p align="center"> Rushed OC in progress, not his final design yet... </p>
