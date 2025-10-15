@@ -1,3 +1,6 @@
+<p align="center"> https://yunnieyu.straw.page/ </p>
+<p align="center"> THANK YOU MY BELOVED SCRUMPTIOUS YUNNIE FOR THIS WONDERFUL GIFT FOR MY BIRTHDAYFJEFK (october 17) </p>
+
 ## <p align="center"> TW: Canon Character X OC (Mainly GI) </p>
 
 <p align="center">
