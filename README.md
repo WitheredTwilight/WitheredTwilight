@@ -1,6 +1,3 @@
-<p align="center"> https://yunnieyu.straw.page/ </p>
-<p align="center"> THANK YOU MY BELOVED SCRUMPTIOUS YUNNIE FOR THIS WONDERFUL GIFT FOR MY BIRTHDAYFJEFK (october 17) </p>
-
 ## <p align="center"> TW: Canon Character X OC (Mainly GI) </p>
 
 <p align="center">
@@ -19,5 +16,9 @@
 
 <p align="center"> Name: Jirou (?) Age: 500 years old </p>
 <p align="center"> Fatui OC , Crimson Blood , Thorns of Remembrance </p>
+
+<p align="center">
+<img src="https://i.pinimg.com/736x/a9/0a/a6/a90aa6a3e91cd197880e8e2db0046451.jpg" width="450" />
+</p>
 
 <p align="center"> Rushed OC in progress, not his final design yet... </p>
