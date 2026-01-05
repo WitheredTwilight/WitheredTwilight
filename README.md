@@ -1,7 +1,3 @@
-
-# <p align="center"> Babynon </p>
-
 <p align="center">
-<img src="https://i.pinimg.com/736x/26/bc/a3/26bca3b17b312284766c72edc72799f6.jpg" width="250" />
+<img src="https://i.pinimg.com/1200x/a7/99/ed/a799ed077b4e9ef7a64d40f1fd1fd229.jpg" width="450" />
 </p>
-<p align="center"> Puppynon, plushienon? </p>
